@@ -7,4 +7,4 @@
 🔗 Links
 
 X: https://x.com/rehan__2305
-LInkedin:https://www.linkedin.com/in/mohd-rehan-600647377
+Linkedin:https://www.linkedin.com/in/mohd-rehan-600647377
